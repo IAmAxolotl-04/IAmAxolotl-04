@@ -27,7 +27,7 @@ I’m a **cybersecurity analyst based in South Africa** with a strong curiosity 
 
 * **Pronouns:** she/her
 * **Side hustle:** Creating clean, ATS-friendly CVs
-* **Music:** EDM enthusiast
+* **Music:** EDM and psychedelic pop enthusiast
 * **Tea:** Proud tea connoisseur (yes, even green tea ☕)
 * **Hobbies:** Learning Thai, gym & fitness, and consuming way too much media
 
