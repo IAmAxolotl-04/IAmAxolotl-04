@@ -1,6 +1,7 @@
 👋 Hi there, I’m Sazi!
 
-I’m a **cybersecurity analyst based in South Africa** with a strong curiosity for how systems work—and how to protect them. I’m a fast learner who enjoys breaking down complex topics and turning them into practical, real-world solutions.
+**Cybersecurity Analyst**
+Based in South Africa with a strong curiosity for how systems work—and how to protect them. I’m a fast learner who enjoys breaking down complex topics and turning them into practical, real-world solutions.
 
 
 🔐 What I’m working on
